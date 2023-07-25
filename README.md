@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ASSANDHOLE
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning as an undergraduate (final year) CS student at SUSTech.
+- 🌱 I'll start my Master's in University of Florida
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can contact me through <anguangyan@anguangyan.com>
 
